@@ -1,0 +1,1 @@
+# Colombia_AreaQuemada_Modis_500m
